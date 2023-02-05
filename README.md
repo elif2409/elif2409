@@ -1,5 +1,4 @@
 - 👋 Hi, I’m Elif
-- 👀 I’m mostly interested in reading books and watching shows
 - 🌱 I’m currently a freshman at Bilkent
 - 📫 How to reach me eelifercan04@gmail.com
 
